@@ -1,2 +1,2 @@
 # DataBase
-DataBase and Roslovtcev(•ω•)
+DataBase and Roslovtcev (•ω•)
